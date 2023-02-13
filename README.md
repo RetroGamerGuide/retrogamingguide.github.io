@@ -24,23 +24,5 @@ Garage Sales or Flea Markets
 
 Conclusion
         To wrap up, the best places to find video games is at DKoldies or Ebay. If you want to go somewhere else or get games in person, thrift stores, garage sales, or flea markets are a go for you. I can’t wait to see what you racked up!
-
-
+	
 Joey, YouTube. (2023, January 27). Don't get scammed: The truth about fake games! YouTube. Retrieved February 12, 2023, from https://www.youtube.com/shorts/xz3S5ooVgKc 
-
-
-How to tell a counterfeit (list)
-How to spot fake Pokémon games by PhoenixResale: How to spot fake Pokémon games
-How To Spot A Fake Pokemon Game by DKoldies: https://youtube.com/shorts/rFfn3dd2v7s?feature=share
-Fake Pokémon Game vs Real Pokémon Game: Fake Pokémon Game vs Real Pokémon Game
-
-
-How to tell if your N64 game is fake by DKoldies: How to tell if your N64 game is fake
-Is Your N64 Cartridge a FAKE? [Full Guide] by DrogieIs Your N64 Cartridge a FAKE?   [Full Guide]
-How to Spot A Fake Nintendo 64 Game by retro game trader: How to Spot A Fake Nintendo 64 Game
-
-
-How to spot a FAKE DS cartridge by Emswizzle: https://youtube.com/shorts/25OnxakzviM?feature=share
-How to Spot a Fake Pokemon Nintendo DS Game Cartridge! By Pokeobsession How to Spot a Fake Pokemon Nintendo DS Game Cartridge!
-The ONLY REAL Way To Spot FAKE Nintendo DS Games by Scottsquatch
-The ONLY REAL Way To Spot FAKE Nintendo DS Games | Scottsquatch
