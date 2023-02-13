@@ -27,7 +27,18 @@ To wrap up, the best places to find video games is at DKoldies or Ebay. If you w
 
 Joey, YouTube. (2023, January 27). Don't get scammed: The truth about fake games! YouTube. Retrieved February 12, 2023, from https://www.youtube.com/shorts/xz3S5ooVgKc
 
-  How to tell a counterfeit (list)
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+ How to tell a counterfeit (list)
   
   How to spot fake Pokémon games by PhoenixResale: How to spot fake Pokémon games
   How To Spot A Fake Pokemon Game by DKoldies: https://youtube.com/shorts/rFfn3dd2v7s?feature=share
