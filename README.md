@@ -10,7 +10,7 @@ Counterfeits strike back!
         To begin with, never buy a fake copy of the game because it will not work in a way or even harm your console. According to DKoldies, “buying them financially supports the criminal enterprises that make them”. So it’s important to tell what and what’s not a counterfeit in resources such as my list in order to not get scammed by these malicious people.
 
 DKoldies
-DKoldies is one of the best gaming stores to get from. They can have great bargains for games such as having up to 34% off Nintendo Switch games. Although, a downside is that sometimes prices in DKoldies can be high, so check other sites like Ebay to see whether or not you choose to buy it from them. They only have authentic games though, so there is no need to check for counterfeits.
+        DKoldies is one of the best gaming stores to get from. They can have great bargains for games such as having up to 34% off Nintendo Switch games. Although, a downside is that sometimes prices in DKoldies can be high, so check other sites like Ebay to see whether or not you choose to buy it from them. They only have authentic games though, so there is no need to check for counterfeits.
 
 
 Ebay
